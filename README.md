@@ -8,4 +8,4 @@ Meu nome é Gabriel Sluzala
 - Ultilizo essa area para organizar meus projetos
 
 
-  https://tenor.com/bdRALYBVep9.gif
+  ![]https://tenor.com/bdRALYBVep9.gif
