@@ -8,4 +8,4 @@ Meu nome é Gabriel Sluzala
 - Ultilizo essa area para organizar meus projetos
   
 
-  ![](https://tenor.com/pt-BR/view/spider-man-gif-12288959411115012276)
+  ![](https://media.tenor.com/LfPT2V9HIFgAAAA1/oppenheimer-oppenheimer-movie.webp)
