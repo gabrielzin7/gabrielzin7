@@ -8,4 +8,4 @@ Meu nome é Gabriel Sluzala
 - Ultilizo essa area para organizar meus projetos
 
 
-  ![](https://tenor.com/pt-BR/view/legacy-media-out-the-window-no-soup-for-you-cheque-please-recovering-democrat-gif-7793247901325461552)
+  ![Alt Text](https://tenor.com/b0vbt.gif)
