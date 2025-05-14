@@ -8,4 +8,4 @@ Meu nome é Gabriel Sluzala
 - Ultilizo essa area para organizar meus projetos
 
 
-  ![](https://tenor.com/pt-BR/view/edwin-payne-silly-cute-dancing-cat-dancing-gif-6856029254536541444)
+  (https://tenor.com/pt-BR/view/legacy-media-out-the-window-no-soup-for-you-cheque-please-recovering-democrat-gif-7793247901325461552)
